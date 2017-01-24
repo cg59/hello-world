@@ -1,2 +1,2 @@
 # hello-world
-My first repository
+I am so f*****g cool! Geez!
